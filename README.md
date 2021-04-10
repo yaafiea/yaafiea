@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yaafiea
-- 👀 I’m interested in Technology enthusiast, Open Source
+- 👀 I’m interested in Technology Enthusiast, Open Source
 - 🌱 I’m currently learning at Asia Cyber University (ACU)
 - 📫 How to reach me yaafieffendi@Gmail.com
 
